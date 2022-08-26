@@ -1,2 +1,2 @@
 # notes
-study notes
+saaatudy notes
